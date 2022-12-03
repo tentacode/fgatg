@@ -30,7 +30,7 @@ Goatfather - The Devil made me smoke his bong (c'est moi à gauche)
 
 ## Influences
 
-C'est subjectif, et on reste très ouvert, mais ça donne une idée du genre de son et du mood que j'aimerais idéalement.
+C'est subjectif, et on reste très ouvert. C'est mes influences personnelles et pas forcément comme ça que ça sonnera non plus.
 
 Pogo Car Crash Control - Qu'est-ce qui va pas
 
