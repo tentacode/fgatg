@@ -1,5 +1,7 @@
 # FGATG cherche musicien•nes
 
+![La belle image d'intro](https://www.letempsmachine.com/sites/default/files/letempsmachine/styles/16x9_1920/public/ged/pogo2_14.jpg?itok=NyTCsIVB)
+
 Fais Gaffe à Ta Gueule c'est le nom du projet de groupe punk/métal que j'aimerais monter avec toi. Pour débuter je cherche d'abords un•e batteur•euse en priorité, mais si tu es bassiste, chanteur•euse ou guitariste (rythmique + mélodie, pas soliste) n'hésites pas à m'envoyer un message. Ah et si tu peux aussi chanter et/ou faire des choeurs c'est encore mieux, on va avoir besoin de plusieurs voix.
 
 L'idée c'est de commencer par bosser des reprises en mode vénère, histoire d'apprendre à aimer jouer ensemble, faire des petites premières parties de concert très vite, puis quand on saura jouer et qu'on sera stabilisé, avancer sur du 100% compo et monter un vrai projet.
