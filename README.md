@@ -28,9 +28,9 @@ Goatfather - The Devil made me smoke his bong (c'est moi à gauche)
 
 [![Music Video](http://img.youtube.com/vi/Imr5-AsULFI/0.jpg)](http://www.youtube.com/watch?v=Imr5-AsULFI "Music Video")
 
-## Influences
+## Mes influences à moi
 
-C'est subjectif, et on reste très ouvert. C'est mes influences personnelles et pas forcément comme ça que ça sonnera non plus.
+Attention c'est pas forcément à ça que ça ressemblera à la fin, mais c'est le genre de son que j'aime bien en ce moment, le resultat se fera en fonction des envies de chacun•es.
 
 Pogo Car Crash Control - Qu'est-ce qui va pas
 
