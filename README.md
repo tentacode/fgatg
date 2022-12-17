@@ -62,6 +62,12 @@ Svinkels - Reveille le Punk
 
 [![Music Video](http://img.youtube.com/vi/d30eeRnsaDU/0.jpg)](http://www.youtube.com/watch?v=d30eeRnsaDU "Music Video")
 
+Gogol Bordello - Not a crime
+
+<https://www.youtube.com/watch?v=rAA8a9-wIfI>
+
+[![Music Video](http://img.youtube.com/vi/rAA8a9-wIfI/0.jpg)](http://www.youtube.com/watch?v=rAA8a9-wIfI "Music Video")
+
 Guerrilla Poubelle - Demain il pleut
 
 <https://www.youtube.com/watch?v=Bt2dLX-DYF0>
